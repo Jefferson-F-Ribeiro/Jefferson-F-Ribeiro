@@ -15,7 +15,6 @@
 
 - ⚡ Fun fact **I love old cars (specially wagons). My daily driver is a 23-year-old VW Parati.**
 
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
